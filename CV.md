@@ -5,9 +5,7 @@
 #### Contacts:
 
 dk777957@gmail.com
-
-+77022350299
-
++7-702-235-02-99
 Almaty, Kazakstan
 
 #### I'm an enthusiastic and detail-oriented Frontend Software Engineer seeking an entry-level position with Company to use my skills in coding, troubleshooting complex problems, and assisting in the timely completion of projects.
